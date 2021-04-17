@@ -1,2 +1,2 @@
 # loveMom1
-Message to mom
+Message to mom used on ShineOn message cards
